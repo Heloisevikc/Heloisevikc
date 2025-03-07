@@ -8,19 +8,19 @@
 </p>
 
 <BR>
-- 💞️ gosto de ler livros 
+- 📖 gosto de ler livros 
 <br>
 <BR>
-- 😉 musica 
+- 🧛🏻‍♀️ the vampire diaries 
 <br>
 <BR>
-- 💞️ série
+- 🎥 série
 <br>
 <BR>
-- 💻 jogar volei 
+-🏐 jogar volei 
 <br>
 <BR>
-- 🤔academia 
+- 🏋️‍♀️ academia 
 <br>
 <BR>
 <br>
