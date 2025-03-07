@@ -8,13 +8,13 @@
 </p>
 
 <BR>
-- 👨‍💻 Gosto de computação
+- 💞️ gosto de ler livros 
 <br>
 <BR>
-- 😉Formatação
+- 😉 musica 
 <br>
 <BR>
-- 💞️ CMD
+- 💞️ série
 <br>
 <BR>
 - 💻 Modificar bios de notebook
