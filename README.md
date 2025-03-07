@@ -17,13 +17,12 @@
 - 💞️ série
 <br>
 <BR>
-- 💻 Modificar bios de notebook
+- 💻 jogar volei 
 <br>
 <BR>
-- 🤔 Front-end
+- 🤔academia 
 <br>
 <BR>
-- 🤯 Back-end
 <br>
 <BR>
 - 💞 Javascript
